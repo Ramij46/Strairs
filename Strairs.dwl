@@ -1,0 +1,3 @@
+mypc
+LAPTOP-6STJVGI2 
+06 September 2024  11:13:38
